@@ -1,0 +1,2 @@
+# crazyxxx.github.io
+blog
